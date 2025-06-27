@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-💻 Frontend Developer | 2 años de experiencia | Apasionado por la creación de experiencias digitales increíbles
+💻 Frontend Developer | 3 años de experiencia | Apasionado por la creación de experiencias digitales increíbles
 
 ✨ Sobre mí:
 
